@@ -6,7 +6,7 @@
 
 💞️ I’m enthusiastic about collaborating on your project ideas to contribute and enhance the overall development.
 
-📫 You can reach me at **mukulsahu966@gmail.com**.
+📫 You can reach me at [Gmail](mukulsahu966@gmail.com).
 
 💎 Connect with me on [LinkedIn](https://www.linkedin.com/in/mk1016o/) to discover more about my professional journey.
 
